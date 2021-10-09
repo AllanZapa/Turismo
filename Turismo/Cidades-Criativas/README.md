@@ -15,7 +15,10 @@
 
 - [Turismo Gastronômico na Região Norte](https://www.fazfacil.com.br/lazer/turismo-gastronomico-norte/)
 
-- [Festivl de Parintins](https://www.festivaldeparintins.com.br/blog/gastronomia/)
+- [Festival de Parintins](https://www.festivaldeparintins.com.br/blog/gastronomia/)
+  - [Saiba onde comer em Parintins](https://www.amazonasemais.com.br/gastronomia/terra-dos-bumbas-tem-deliciosa-e-variada-culinaria-saiba-onde-comer-em-parintins/)
+  - [GASTRONOMIA - Parintins - AM](https://www.guiadoturismobrasil.com/gastronomia/3/AM/parintins/246)  
+  - [Festival Folclórico de Parintins](https://www.almadeviajante.com/festival-folclorico-de-parintins/)
 
 - [Culinária do Acre](https://todosdestinos.com/norte/acre/culinaria-do-acre-reune-delicias-de-outros-estados/)
   - [Baixaria](http://g1.globo.com/ac/acre/noticia/2013/03/aprenda-fazer-um-prato-tipico-da-culinaria-acreana-baixaria.html)  
